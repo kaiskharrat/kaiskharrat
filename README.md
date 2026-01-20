@@ -48,7 +48,7 @@ I’m building a platform called **Ontej** to help youth learn creative skills (
 
 I’m open to freelance opportunities, collaborations, or just a good tech chat.
 
-- 📫 Reach me on **[LinkedIn](https://www.linkedin.com/in/kaiskharrat)**  
+- 📫 Reach me on **[LinkedIn](https://www.linkedin.com/in/kais-kharrat-964418251)**  
 - 📧 Email: kaiskharrat0@gmail.com  
 - 🎥 Instagram: [@kaiskharrat21](https://www.instagram.com/kaiskharrat21)
 
